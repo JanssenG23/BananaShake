@@ -1,0 +1,1 @@
+A delicious and refreshing shake that only requires a couple ingredients is really easy to make.
